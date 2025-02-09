@@ -1,4 +1,4 @@
-# Bisola-oluwanisola
+# BISOLA OLUWANISOLA
 # DATA ANALYST
 # PROJECT
 # EDUCATION
